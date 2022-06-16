@@ -16,7 +16,7 @@
 
 </br>
 
-👨🏻‍💻 [42 Seoul](https://42seoul.kr/seoul42/main/view) (2020-05 ~ 현재 ) 
+👨🏻‍💻 [42 Seoul](https://42seoul.kr/seoul42/main/view) (2020-05 ~ 2022-04 ) 
 - Intra ID: "yepark"
 
 
